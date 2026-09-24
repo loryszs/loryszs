@@ -12,6 +12,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 rosa.laurah@escola.pr.gov.br
 
-
-![](https://media1.tenor.com/m/R_eZ54c3HF8AAAAd/coutinho-vasco.gif)
 ![](https://media1.tenor.com/m/hx7yY_Lrt2sAAAAC/ayrtion-sena-formula-1.gif)
